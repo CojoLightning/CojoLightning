@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CojoLightning
+- 👀 I’m interested in computer science, warframe, and doctor pepper.
+- 🌱 I’m currently learning C#
+- 😄 Pronouns: he/him
