@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CojoLightning
-- 👀 I’m interested in computer science, warframe, and doctor pepper.
-- 🌱 I’m currently learning C#
 - 😄 Pronouns: he/him
+- Raising Canes and Culver's Addict
+- I ❤️ Doctor Pepper
+- Linkin Park / Metallica Fanboy
